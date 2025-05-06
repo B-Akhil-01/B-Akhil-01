@@ -39,7 +39,7 @@
 ## 📬 Connect with Me
 
 * [LinkedIn](https://www.linkedin.com/in/b-akhil0106)
-* [Email](bakhil0106@hmail.com)
+* [Email](b3906666@gmail.com)
 
 ---
 
